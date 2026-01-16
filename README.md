@@ -66,7 +66,7 @@ Aplicamos resinas de curado que hidratan el hormigón lentamente, garantizando q
 
 ---
 
-## Áreas de Servicio en Madrid y Alrededores (Geo-SEO)
+## Áreas de Servicio en Madrid y Alrededores
 
 Brindamos cobertura técnica en toda la región, adaptándonos a la normativa local de cada municipio:
 
