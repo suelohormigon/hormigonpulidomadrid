@@ -1,7 +1,6 @@
 # Hormigón Pulido en Madrid | Pavimentos Industriales, Garajes y Viviendas
 
-¿Buscas una solución de **pavimento resistente, duradera y con un acabado moderno**?  
-En **PaviGrupoHispana** somos especialistas en **hormigón pulido en Madrid**, creando superficies continuas de alta resistencia para naves industriales, garajes, parkings y espacios residenciales de diseño.
+¿Buscas una solución de **pavimento resistente, duradera y con un acabado moderno**? En **PaviGrupoHispana** somos especialistas en **hormigón pulido en Madrid**, creando superficies continuas de alta resistencia para naves industriales, garajes, parkings y espacios residenciales de diseño.
 
 ![Hormigón pulido industrial en Madrid](https://pavigrupohispana.es/wp-content/uploads/2024/10/IMG-20241003-WA0119.webp)
 
